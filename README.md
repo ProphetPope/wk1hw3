@@ -7,10 +7,11 @@ Prophet Darnell H. Pope
 
 Books Author
 
-Hit from Behind: While in the Church
-The Perfect Pattern
-Staying F.O.C.U.S. with GOD
-Knowing GOD: It's Time for Change
+1. Hit from Behind: While in the Church
+1. The Perfect Pattern
+1. Staying F.O.C.U.S. with GOD
+1. Knowing GOD: It's Time for Change
+
 Matthew 6:33:
 
 But seek ye First the KINGDOM of GOD and all of HIS RIGHTEOSNESS, and all these things shall be added unto you.
