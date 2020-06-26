@@ -1,7 +1,7 @@
 # wk1hw3
 APOSTOLIC ANOINTED PROPHETIC PREACHER
 
-![title]( https://www.google.com/imgres?imgurl=https%3A%2F%2Fprofile.alumnius.net%2F233622375.jpg&imgrefurl=https%3A%2F%2Falumnius.net%2Ffayetteville_state_u-8774-31&tbnid=wQZmAvAyx-yR2M&vet=12ahUKEwiTjLvp1Z3qAhWDhFMKHfwwCXAQMygEegUIARCeAQ..i&docid=hwd00odJA2x28M&w=450&h=450&itg=1&q=prophet%20darnell%20pope&ved=2ahUKEwiTjLvp1Z3qAhWDhFMKHfwwCXAQMygEegUIARCeAQ)
+![title](https://www.google.com/imgres?imgurl=https%3A%2F%2Fprofile.alumnius.net%2F233622375.jpg&imgrefurl=https%3A%2F%2Falumnius.net%2Ffayetteville_state_u-8774-31&tbnid=wQZmAvAyx-yR2M&vet=12ahUKEwiTjLvp1Z3qAhWDhFMKHfwwCXAQMygEegUIARCeAQ..i&docid=hwd00odJA2x28M&w=450&h=450&itg=1&q=prophet%20darnell%20pope&ved=2ahUKEwiTjLvp1Z3qAhWDhFMKHfwwCXAQMygEegUIARCeAQ)
 
 Prophet Darnell H. Pope
 
