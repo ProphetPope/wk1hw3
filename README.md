@@ -1,7 +1,10 @@
 # wk1hw3
 APOSTOLIC ANOINTED PROPHETIC PREACHER
 
-![title](https://drive.google.com/file/d/0B9VJPNWjSPKjSVdiYzFSV3hZUFE/view?usp=sharing)
+Bethel Community Apostolic Church
+2593 Kelly Street
+Augusta, Ga 30904
+Pastor: Apostle Darrell K. Butler
 
 Prophet Darnell H. Pope
 Books Author
